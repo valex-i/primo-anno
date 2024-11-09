@@ -1,1 +1,1 @@
-questo è il mio repositorio **0_0**
+questo è il mio repository **0_0**
