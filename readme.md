@@ -1,4 +1,4 @@
-questo è il mio repositorio **0_0**
+questo è il mio repository **0_0**
 
 **La mia bio** ★(  ╹ ▽ ╹  )
 Mi chiamo Iavarone Valentina, ho 18 anni, sono di 
