@@ -7,5 +7,6 @@ Ora sono iscritta all'Accademia di Belle Arti di Napoli
 indirizzo NTA.
 
 (\_/)
+
 (•-•)
 />❤
