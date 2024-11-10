@@ -6,5 +6,7 @@ Napoli e sono uscita dal liceo artistico indirizzo ebanisteria.
 Ora sono iscritta all'Accademia di Belle Arti di Napoli
 indirizzo NTA.
 (\_/)
+ 
 (•-•)
+
 />❤
