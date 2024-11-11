@@ -8,3 +8,4 @@ indirizzo NTA.
 (\_/)
 (•-•)
 />❤
+![la mia foto](mia foto.jpg)
